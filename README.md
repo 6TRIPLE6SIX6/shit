@@ -1,0 +1,2 @@
+# shit
+Im script-kiddy
